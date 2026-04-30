@@ -1,4 +1,4 @@
-
+Experience get strong for brainrots like never before with premium get strong for brainrots Script, the #1 Script. Includes auto-collect and teleport
 
 
 
